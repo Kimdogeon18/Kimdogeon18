@@ -2,7 +2,7 @@
 
 ### I am AI software student in shingu college
 
-### 저의 수업내용과 프로젝트를 올립니다!! 
+### 저의 수업내용과 프로젝트를 올립니다❕❕❕
 
 <!--
 **Kimdogeon18/Kimdogeon18** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
